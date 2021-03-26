@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Vidrochka
+- 👀 I’m interested in ... interested in fucking everything
+- 🌱 I’m currently learning ... everything
+- 💞️ I’m looking to collaborate on ... everything interesting (everything)
+- 📫 How to reach me ... Evgenuy1605@yandex.ru , shure, this is the best way
